@@ -1,4 +1,4 @@
-#  
+#  smart escape waves for lucky blocks Script offers the most advanced escape waves for lucky blocks Script, with no clip and private server access.
 
 
 
